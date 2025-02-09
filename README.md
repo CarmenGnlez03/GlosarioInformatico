@@ -1,0 +1,1 @@
+# GlosarioInform-tico
